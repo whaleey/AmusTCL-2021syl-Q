@@ -6,6 +6,6 @@ This is a repository to store section B self made questions. Feel free to answer
 I passed the exam with distinction, and have extensive experience in piano performance.
 You can find me at Whale Music Journal on YouTube!
 
-If you need a review for your answers please email your answers to whalemusicwmmj0@gmail.com
+If you need a review for your answers please email your answers to [here](whalemusicwmmj0@gmail.com)
 
 Please use them responsibly! I hope it helps with your exam preparation.
