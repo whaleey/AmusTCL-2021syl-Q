@@ -34,3 +34,15 @@ _Answer the following questions, which refer to no.1(Overture) from F major suit
     b. an accented passing note\
     c. a 4-3 suspension at cadence point.
 5. Discuss the writing in terms of tonal progression in the last three bars of no.11. _(4 marks)_
+------------------------------------------------------------------------------------------
+(04) Aor 20,2021)\
+_Answer the following questions, which refer to no.20, 21 and 22:_
+1. Discuss how the two types of pieces (no.20 against 21&22) create contrast with each other. _(6 marks)_\
+2. (no.22) Discuss the tonality in bar 5-8. _(3 marks)_\
+3. (no.21 and 22) Discuss the similarities and differences between the two minuets. _(6 marks)_\
+4. (no.22) Realize the figure bass for bar 3-4 _(2 mark)_\
+5. Find out the following in either of the piece: _(2 marks)_\
+    a. a 64 cadential point\
+    b. a vi7 chord,
+6. (no.20) Write at concert pitch the flauto piccolo part, bar 8-11. _(1 mark)_\
+7. (no.20) In baroque performance practice, it is common for the repeated section of a slow movement to be adorned with ornaments. Try to write the ornamented version of bar1-8 for the flauto piccolo. _(0 marks - just for fun!)_
