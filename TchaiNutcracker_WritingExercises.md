@@ -4,3 +4,9 @@
 2. Comment on the writing of horns in the piece.
 3. Comment in three ways Tchaikovsky attempted to mimic the Spanish style, as indicated in the title of the piece.
 ------------------------------------------------------------------------------------------------------------------------------------
+(02) (Jun 7, 2021) - Danse Arabe (p.422)
+
+1. Describe the structure for the piece.
+2. Comment on the writing of the strings in supporting the melodies (woodwinds & violins).
+3. Write three elements that makes the piece sound Arabian.
+------------------------------------------------------------------------------------------------------------------------------------
