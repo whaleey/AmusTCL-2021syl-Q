@@ -9,4 +9,9 @@
 1. Describe the structure for the piece.
 2. Comment on the writing of the strings in supporting the melodies (woodwinds & violins).
 3. Write three elements that makes the piece sound Arabian.
+
+Danse Chinoise (p.430)
+1. Describe the character of the piece and three musical elements that support this.
+2. Describe how the campanelli(carillon/glockenspiel) helps to outline the melody (from P.433).
+3. In what ways are the second iteration of the melody(P.433) different from the first (P.430)? Try to name three of them.
 ------------------------------------------------------------------------------------------------------------------------------------
