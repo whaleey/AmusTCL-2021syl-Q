@@ -15,3 +15,15 @@ Danse Chinoise (p.430)
 2. Describe how the campanelli(carillon/glockenspiel) helps to outline the melody (from P.433).
 3. In what ways are the second iteration of the melody(P.433) different from the first (P.430)? Try to name three of them.
 ------------------------------------------------------------------------------------------------------------------------------------
+(03) (Jun 14, 2021) - Danse Russe (P.438)
+1. Describe the character of the piece and three musical elements that support this.
+2. The piece consists of two motives. What similarities and differences are observed between them?
+3. What is the chord in the first beat of bar 51?
+
+Danse des Merlitons (P.452)
+1. What is the chord at the first beat of bar 25?
+2. Describe the structure for bar 43 - 61. How did Tchaikovsky build up the atmosphere?
+3. Identify where the horns usually appear when the flutes are playing the melody and the corresponding writing technique.
+
+
+------------------------------------------------------------------------------------------------------------------------------------
