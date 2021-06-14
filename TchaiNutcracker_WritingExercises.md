@@ -25,5 +25,18 @@ Danse des Merlitons (P.452)
 2. Describe the structure for bar 43 - 61. How did Tchaikovsky build up the atmosphere?
 3. Identify where the horns usually appear when the flutes are playing the melody and the corresponding writing technique.
 
-
 ------------------------------------------------------------------------------------------------------------------------------------
+(04) (Jun 21, 2021) - Mother Gigogne and the clowns (P.463)
+1. Compare the differences between bar 1-20 and bar 20-36.
+2. What is the interval of oboe at bar 128?
+3. What are the notes for horn at bar 130-133?
+4. From bar 133, comment how the climax is built until the end.
+
+Danse des Fleurs
+1. Name the chords at:\
+    (a) bar 90-93\
+    (b) bar 301-304\
+    (c) bar 334-337.
+2. Identify a German sixth chord.
+3. Find an example of hemiola.
+4. Write three musical elements that makes the piece sound like a flower "waltz".
