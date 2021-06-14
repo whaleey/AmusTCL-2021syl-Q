@@ -32,7 +32,7 @@ Danse des Merlitons (P.452)
 3. What are the notes for horn at bar 130-133?
 4. From bar 133, comment how the climax is built until the end.
 
-Danse des Fleurs
+Danse des Fleurs (P.493)
 1. Name the chords at:\
     (a) bar 90-93\
     (b) bar 301-304\
