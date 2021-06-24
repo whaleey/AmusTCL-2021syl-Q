@@ -41,7 +41,7 @@ Danse des Fleurs (P.493)
 3. Find an example of hemiola.
 4. Write three musical elements that makes the piece sound like a flower "waltz".
 ------------------------------------------------------------------------------------------------------------------------------------
-(05) (Jun 28, 2021) - Other misc pieces
+(05) (Jun 28, 2021) - Other misc pieces\
 Refer to Sugar Plum song (p.336)
 1. Name the chords at:\
     (a) bar 13, second beat\
