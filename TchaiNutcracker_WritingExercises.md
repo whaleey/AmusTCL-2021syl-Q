@@ -57,3 +57,14 @@ Refer to next scene (p.374)
 
 In Valse Finale, (p.615) \
 find an Italian sixth and German sixth chord. (Make sure to listen to the track!)
+------------------------------------------------------------------------------------------------------------------------------------
+(06) (Jun 29, 2021) - Other misc pieces (2)
+
+Refer to dance of the sugar plums (p.585) \
+1. Comment on the character of the piece and describe a few features that achieve this effect.
+2. What is the instruction for strings in p.591 last bar?
+3. Comment on the writing of the celesta.
+
+Refer to coda (p.599) \ 
+1. Name the chords at last bar of p.611.
+2. What makes the piece Tchaikovsky? (to discuss in lesson)
