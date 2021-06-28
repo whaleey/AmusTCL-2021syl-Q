@@ -55,5 +55,5 @@ Refer to next scene (p.374)
 2. A half diminished 7th chord. (p.386)
 3. Try to describe the outline of this transision scene (optional)
 
-In Valse Finale,\
+In Valse Finale, (p.615) \
 find an Italian sixth and German sixth chord. (Make sure to listen to the track!)
