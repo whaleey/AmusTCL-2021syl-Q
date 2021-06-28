@@ -52,7 +52,7 @@ Refer to Sugar Plum song (p.336)
 
 Refer to next scene (p.374)
 1. Find a diminished third. (p.386)
-2. A diminished 7th chord. (p.386)
+2. A half diminished 7th chord. (p.386)
 3. Try to describe the outline of this transision scene (optional)
 
 In Valse Finale,\
