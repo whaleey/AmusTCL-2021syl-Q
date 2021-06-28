@@ -43,12 +43,12 @@ Danse des Fleurs (P.493)
 ------------------------------------------------------------------------------------------------------------------------------------
 (05) (Jun 28, 2021) - Other misc pieces
 
-Refer to Sugar Plum song (p.336)\
+Refer to Sugar Plum song (p.336)
 1. Name the chords at:\
     (a) bar 13-14\
     (b) P.364-369 (can work together during lesson)\
     (c) bar 83.
-2. P.356-363 : Name three compositional devices used in the phrase.
+2. P.356-363 : Name two compositional devices used in the phrase.
 
 Refer to next scene (p.374)
 1. Find a diminished third. (p.386)
