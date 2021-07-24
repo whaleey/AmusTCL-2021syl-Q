@@ -46,3 +46,17 @@ _Answer the following questions, which refer to no.20, 21 and 22:_
     b. a vi7 chord,
 6. (no.20) Write at concert pitch the flauto piccolo part, bar 8-11. _(1 mark)_
 7. (no.20) In baroque performance practice, it is common for the repeated section of a slow movement to be adorned with ornaments. Try to write the ornamented version of bar1-8 for the flauto piccolo. _(0 marks - just for fun!)_
+
+------------------------------------------------------------------------------------------
+Mock Set (01)
+_Answer the following questions, which refer to number 12 (Alla Hornpipe):_
+1. Describe the writing on the theme in some detail for bar 1-11. _(5 marks)_
+2. Comment on the structure for bar 1-39. _(6 marks)_
+3. Point out an example of the following. (Give bar number and beat number where appropriate.) _(8 marks)_\
+    a. 7th chord\
+    b. hemiola effect\
+    c. an anticipation note\
+    d. an augmented 4th.                                                                               
+4. To which key has the piece modulated to by bar 57? _(1 marks)_
+
+
